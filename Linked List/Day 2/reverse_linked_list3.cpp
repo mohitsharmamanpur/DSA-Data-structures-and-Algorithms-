@@ -1,0 +1,1 @@
+3rd approach krni h vedio dekh ker.
